@@ -1,4 +1,4 @@
-## Hi there 👋
+# Pater, Domine, quaeso, ignosce mihi; tumor sum et peccator.
 
 <!--
 **ripswingsoff/ripswingsoff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
