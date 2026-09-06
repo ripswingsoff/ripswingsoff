@@ -1,4 +1,4 @@
-# Pater, Domine, quaeso, ignosce mihi; tumor sum et peccator.
+# Pater, Domine, oro, ignosce mihi; superbia plenus sum, tumor huius mundi.
 
 <!--
 **ripswingsoff/ripswingsoff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
