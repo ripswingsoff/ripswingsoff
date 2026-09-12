@@ -1,7 +1,7 @@
- greetings ! 
+9 greetings ! 
 
 
-∙˙• ***Twitter is for losers, Will. That’s why I’m on it.”***
+*Twitter is for losers, Will. That’s why I’m on it*
 
   interact if my name say so.
 
