@@ -1,7 +1,7 @@
  greetings ! 
 
 
-∙˙• ***take your medication roman !!***
+∙˙• ***Twitter is for losers, Will. That’s why I’m on it.”***
 
   interact if my name say so.
 
