@@ -1,5 +1,12 @@
-# Pater, Domine, oro, ignosce mihi; superbia plenus sum, tumor huius mundi.
+# greetings ! 
 
+
+∙˙• ***I'm not much active but I don't see why this acc Can't be cute !***
+
+        ₊˚ mimistar or Conton candy  ☄️.  interact if my name say so ! 🪐.˚✧
+
+                                     🌔
+                                  ───────
 <!--
 **ripswingsoff/ripswingsoff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
