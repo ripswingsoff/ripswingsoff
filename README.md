@@ -1,15 +1,6 @@
 
- greetings ! 
-
-
-*Twitter is for losers, Will. That’s why I’m on it*
-
-  interact if my name say so.
-
-                     
-                    space & hetalia nerd don't get me started with lore.
-                                  ───────
-<!--
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ   
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🌺
 **ripswingsoff/ripswingsoff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
