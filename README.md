@@ -1,10 +1,11 @@
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤ                     °˖   ꒰ঌ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ╰┈➤ not much active anymore
+ ㅤㅤ °˖   ꒰ঌ 
+╰┈➤
+    not much active anymore
   
-                             iwec/Iwc everytime 
+   iwec/Iwc everytime 
 
-                       " oh my god they killed Kenny ! "
-                            
+   " oh my god they killed Kenny ! "
+                             
              
  
